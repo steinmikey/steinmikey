@@ -1,1 +1,1 @@
-![about-me](https://media3.giphy.com/media/ZyZqaAN0cq8vFfuGnh/giphy.gif?cid=790b7611d7631c58ccfb0e0d72ba0f68b47ed48e4295f170&rid=giphy.gif&ct=g)
+![about-me](https://media3.giphy.com/media/WSzJYHMTRZYfPh7lbO/giphy.gif?cid=790b761152bfa08a318fdd713a48f93264262073c3e3dd28&rid=giphy.gif&ct=g)
